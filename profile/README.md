@@ -10,7 +10,7 @@ In the world of Indian cinema, filmmakers continue to set new standards by exper
 
 ## Introduction to the Film
 
-**Mufasa the lion king (2025)** is a Telugu film directed by Srinivas Reddy. The film features **Ram Pothineni** in the lead role. This film is being produced on a grand scale and promises to deliver a magnificent cinematic experience. The title "Mufasa the lion king" not only highlights the story of a powerful hero but also conveys a message of life's struggles and inspiration..
+**Mufasa the lion king (2025)** is a Telugu film directed by Srinivas Reddy. The film features **Ram Pothineni** in the lead role. This film is being produced on a grand scale and promises to deliver a magnificent cinematic experience. The title "Mufasa the lion king" not only highlights the story of a powerful hero but also conveys a message of life's struggles and inspiration.
 
 ## Movie Synopsis
 
